@@ -1,1 +1,1 @@
-Om Guru !!!
+Om Guru Jai Guru!!!
